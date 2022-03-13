@@ -1,2 +1,4 @@
 # First-ever
-brainstorming 
+brainstorming today 
+
+a small step taken 
